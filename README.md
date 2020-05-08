@@ -1,1 +1,1 @@
-My favorite food is:
+My favorite food is: Avocados
